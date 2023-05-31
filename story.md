@@ -1,1 +1,1 @@
-Once upon a time there was a bunny. The bunny ate carrots and cried. Sad. :(
+Once upon a time there was a bunny. The bunny ate carrots and cried. One day a fox came up to the bunny and was all like "yo yo bro."
